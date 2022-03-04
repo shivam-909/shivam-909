@@ -1,5 +1,5 @@
 hi! 
 
-i'm shivam, 18, based in london.
+i'm shivam, based in london.
 
 ✉️: shivam@sfninety.com
