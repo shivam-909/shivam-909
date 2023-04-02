@@ -1,5 +1,5 @@
 hi! 
 
-i'm shivam, based in london.
+i'm shivam.
 
-✉️: shivam@sfninety.com
+
